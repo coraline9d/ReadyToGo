@@ -6,7 +6,7 @@ Ready to go est une agence de voyage réputée à l'international.
 
 Nous sommes partenaires avec de luxueux hôtels, compagnies aériennes et restaurants. 
 
-Ready To Go fête déjà ces 20 ans, vous pouvez nous faire confiance.
+Ready To Go fête déjà ses 20 ans, vous pouvez nous faire confiance.
 
 ## De quoi sont composées nos offres ?
 
